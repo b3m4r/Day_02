@@ -96,7 +96,6 @@ https://forms.gle/nyktbTppJ5PZ9fpBA
 Матвей
 - Егор
 - Лилия
-- Катя
 
 Алексей
 - Катя
